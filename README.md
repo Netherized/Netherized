@@ -1,1 +1,1 @@
-Hi! My name is Netherized and I am a idiot who plays games!
+Hi! My name is Netherized and I am a idiot who makes and plays games!
