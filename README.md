@@ -1,4 +1,4 @@
-Hi! My name is Netherized and I am a artist who makes and plays games! I'm also the director of VS Imposter Reborn and Untitled Space Shooter!
+Hi! My name is Netherized i make fnf mods
 
 Socials:
 
