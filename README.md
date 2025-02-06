@@ -1,7 +1,3 @@
-Hi! My name is Netherized i make fnf mods
+Welcome to my carrd! My name is Ivy and I am an artist, animator, and writer! I created Impostors United, a discord server focused around FNF Among Us mods and MIRA: Classified, an FNF mod focused around my Among Us OCS.
 
-Socials:
-
-Youtube - https://www.youtube.com/channel/UCG-TtZHYTYBp-_4mbB6wS7w
-
-Twitter - https://twitter.com/netherized
+My Website: https://sophsillin.carrd.co/
